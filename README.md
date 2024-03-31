@@ -1,1 +1,1 @@
-![](kek.jpg)
+![](bee.png)
